@@ -2,4 +2,4 @@
 
 song about rainbow in the key of C major.
 
-the song is a happy song.
+the song is a happy song. It's really good.
